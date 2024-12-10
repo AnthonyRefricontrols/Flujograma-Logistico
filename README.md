@@ -1,2 +1,3 @@
 # Flujograma-Logistico
 Flujograma logistico MIRO
+[https://miro.com/welcomeonboard/Qk1tSkVoTnJuR1loSFZPMWJ0N050NVpsTUJUT2RoOWxUM2lUaTlYbmhURFRBaXFnbzczNWJHNzliaVFqVVd4M2V3dXJGTFA0bHYvUjRvWklUTytDT1N2T1hIS1grbUd2K20zSjExck5qcktYcHNtVHcwNzFSMXFRTFphb0w1cnQhZQ==?share_link_id=699838847658]
